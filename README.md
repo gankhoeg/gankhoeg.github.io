@@ -1,2 +1,0 @@
-# gankhoeg.github.io
-gankhoeg
